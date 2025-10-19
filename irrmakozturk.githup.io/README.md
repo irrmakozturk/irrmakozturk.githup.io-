@@ -1,1 +1,0 @@
-# irrmakozturk.githup.io
